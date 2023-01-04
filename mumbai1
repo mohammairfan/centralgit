@@ -1,1 +1,1 @@
-dil e nadaan tujhe huaa kya hai
+aakhir is marz ki dawaa kya hai 
